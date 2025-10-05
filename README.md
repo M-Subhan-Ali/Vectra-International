@@ -59,13 +59,6 @@ By leveraging analytics and AI-powered tools, we help businesses make smarter de
 
 ---
 
-## 📫 Contact Us
-
-**Vectra International**  
-📍 Global Headquarters: [Add Address Here]  
-🌐 Website: [www.vectrainternational.com](http://www.vectrainternational.com)  
-📧 Email: info@vectrainternational.com  
-📞 Phone: +[Country Code]-[Number]
 
 ---
 
